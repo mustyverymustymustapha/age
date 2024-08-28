@@ -1,0 +1,1 @@
+literally just an age calculator. these are so useful. (i entered my birth year as 2010 as a placeholder, my actual one is different)![F58DA560-BD55-412E-B70D-06A30E721377](https://github.com/user-attachments/assets/b09c6eeb-66a0-49d6-a063-691e17b85fc2)
